@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LARA-it
+- 👀 I’m interested in READING
+- 🌱 I’m currently learning NETWORK SURVEYING
+- 💞️ I’m looking to collaborate on IT
